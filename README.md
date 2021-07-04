@@ -1,9 +1,15 @@
 INGREDIENTS!
+
 2 pt. strawberry ice cream
+
 1 pound cake (store-bought or homemade)
+
 6 tsp. strawberry jam
+
 2 c. heavy cream
+
 2 tbsp. confectioners' sugar
+
 Sprinkles, for decoration (optional)
 
 Line a standard 12-cup muffin tin with paper or foil cupcake liners. Take the ice cream out of the freezer for 10 minutes to soften enough to make it easy to scoop.
